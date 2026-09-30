@@ -1,0 +1,2 @@
+# premium-last-make-001-shoe-last-carving-measurement
+Tired of scattered sticky notes and inconsistent measurements that ruin your hand-carved lasts? The Shoe Last Carving Measurement Hub is your single source of truth for capturing, comparing, and perfecting every dimension.  This Notion template eliminates guesswork by centralizing all your last data—from heel height and toe spring to instep girth a
